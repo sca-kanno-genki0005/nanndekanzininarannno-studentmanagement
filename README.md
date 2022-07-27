@@ -1,3 +1,3 @@
 # nanndekanzininarannno-studentmanagement
 
-#ƒvƒƒWƒFƒNƒg–¼
+#Âƒ#ãƒ—ãƒ­ã‚¸ã‚§ã‚¯ãƒˆÂƒ
